@@ -1,2 +1,2 @@
 # W7
-W7
+compound orpinolide (W7)
